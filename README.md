@@ -1,0 +1,1 @@
+# myamashita2.github.io
